@@ -22,3 +22,7 @@ mobile no. +63 2 9456382571  or +63 2 9986078719     im HOME now Queens Row PHIL
 
 when unattended.
 
+FREEBIES --->>>  https://bob.onaliyun.com/
+
+I WOULD LIKE TO THANK YOU FOR BEING VIGILANT AND UP TO DATE FOR WHAT'S HAPPENNING ARROUND.
+
