@@ -16,7 +16,9 @@ Here are some ideas to get you started:
 -->
 Bobby Here,
 
-anything i can do ??  e-mail :  alicer.roberto@outlook.com
+anything i can do ??  e-mail :  alicer.roberto@outlook.com or corelativemale@gmail.com
 
-mobile no. +63 2 9456382571       im HOME now Queens Row PHILIPPINES.
+mobile no. +63 2 9456382571  or +63 2 9986078719     im HOME now Queens Row PHILIPPINES.
+
+when unattended.
 
