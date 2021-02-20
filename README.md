@@ -14,4 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Bobby Here,
+
+anything i can do ??  e-mail :  alicer.roberto@outlook.com
+
+mobile no. +63 2 9456382571       im HOME now Queens Row PHILIPPINES.
 
