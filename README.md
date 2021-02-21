@@ -22,5 +22,5 @@ mobile no. +63 2 9456382571  or +63 2 9986078719     im HOME now Queens Row PHIL
 
 when unattended.
 
-Freebies Because You Are Following Me To Upgrade Your Memory ...   --->>> https://bob.onaliyun.com/
+Freebies,  Because You Are Following Me To Upgrade Your Memory ...   --->>> https://bob.onaliyun.com/
 
