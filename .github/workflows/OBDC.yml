@@ -25,7 +25,7 @@
 #    So you have to install all used libraries and build your project before running the security analysis,
 #    e.g. via `mvn compile` for Java or `npm install` for JavaScript
 
-name: "Xanitizer Security Analysis"
+name: "OBDC Security Analysis"
 
 on:
   # Run the workflow on each push
