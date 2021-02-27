@@ -4,7 +4,7 @@
 
 Bobby Here,
 
-Here are some ideas to get you started:
+My online status:
 
 - 🔭 I’m currently working on ships internet back-up system ...
 - 🌱 I’m currently single ...
