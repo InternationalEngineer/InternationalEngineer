@@ -16,6 +16,7 @@ My online status:
 - ⚡ Fun fact:https://bob.onaliyun.com ...
 - :)) workload server 2021 @corelativemale : https://discord.com/channels/816132349837967421/816132350311399456/816140424036614155
 
-  eto ang mabangis, labas muna kayo dito at baka sumabog ang chipset nyo. hanapin nyo sa google.com  ang >>> RAM  <<< ang pinakamabilis na Internet Ramdon Access Memory sa buong     mundo. query in search engine the word RAM.
+  eto ang mabangis, labas muna kayo dito at baka sumabog ang chipset nyo. hanapin nyo sa google.com  ang >>> RAM  <<< ang pinakamabilis na Internet Ramdon Access Memory sa buong     mundo. query in search engine the word RAM. to be precised in the search index engine click the icon processor image the creative icon processor in multicolor visual square
+  image similar to processor. ano daw yun o alinyun, processor daw na virtual na parang tutoo,.. keep smiling" remember that God Always be by your Side All the way...
 
 </*>
