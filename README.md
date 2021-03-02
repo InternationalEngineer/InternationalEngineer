@@ -14,6 +14,6 @@ My online status:
 - 📫 How to reach me:corelativemale@gmail.com
 - 😄 Pronouns:Bob https://www.youtube.com/watch?v=jbuA2JQIsMA ...
 - ⚡ Fun fact:https://bob.onaliyun.com ...
-
+- :)) workload server 2021 @corelativemale : https://discord.com/channels/816132349837967421/816132350311399456/816140424036614155
 
 </*>
