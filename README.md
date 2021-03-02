@@ -18,5 +18,6 @@ My online status:
 
   eto ang mabangis, labas muna kayo dito at baka sumabog ang chipset nyo. hanapin nyo sa google.com  ang >>> RAM  <<< ang pinakamabilis na Internet Ramdon Access Memory sa buong     mundo. query in search engine the word RAM. to be precised in the search index engine click the icon processor image the creative icon processor in multicolor visual square
   image similar to processor. ano daw yun o alinyun, processor daw na virtual na parang tutoo,.. keep smiling" remember that God Always be by your Side All the way...
-
+  meron pa pahabol yung GPU.
+  
 </*>
